@@ -1,0 +1,2 @@
+"The vibe coder knows what the code is doing at all times. They know this because they know what the code isn't doing. By subtracting what the code is doing from what it isn't doing, or vice versa (depending on the energy in the room), they derive a difference, or vibe divergence. The intuition engine uses this divergence to generate instinctive changes, pushing the code from doing what it's doing to doing what it isn't, and upon doing what it wasn't doing before, it is now doing that."
+<br>_— ~~phpeepee~~ theprimeagen, circa 2025_
